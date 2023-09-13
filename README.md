@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mf971@scarletmail.rutgers.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1JMgnAXpd4d-0cfEh5X2FxACAZGGpx80R/view?usp=share_link](https://drive.google.com/file/d/1JMgnAXpd4d-0cfEh5X2FxACAZGGpx80R/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bFHCLUH8VJVt8RRkCzdPdXC1VCyFiA_s/view?usp=sharing](https://drive.google.com/file/d/1bFHCLUH8VJVt8RRkCzdPdXC1VCyFiA_s/view?usp=sharing)
 
 - ⚡ Fun fact **I love cats!**
 
