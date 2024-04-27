@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Mary</h1>
+<h1 align="center">Hi 👋, I'm Marlow</h1>
 <h3 align="center">A computer science student at Rutgers University</h3>
 
 - 🌱 I’m currently learning **React, SQL**
